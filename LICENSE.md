@@ -1,4 +1,4 @@
-# 
+# top Adobe Photoshop para PC herramientas es el mejor Adobe Photoshop para PC herramientas con historial de versiones y texto en trayectoria. Seguro, confiable y optimizado para el
 
 
 
